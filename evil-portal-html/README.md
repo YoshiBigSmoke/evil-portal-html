@@ -1,1 +1,1 @@
-This files were making only for educational purpose on
+This files were making only for educational purpose and should not be use to damage any 
